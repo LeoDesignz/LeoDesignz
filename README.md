@@ -1,4 +1,4 @@
-- Hi, I’m @LeoDesignz
+- Hi, I’m @Leo
 i fuck up some clothing and other shit like that.
 
 <!---
